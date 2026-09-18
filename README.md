@@ -5,6 +5,5 @@ Highly organized and detail-oriented professional with 5+ years of experience su
 
 Certifications:
 
-CCST Cybersecurity (September 2026)
-
+CCST Cybersecurity (September 2026)        
 CompTIA Security+ (In Progress)
